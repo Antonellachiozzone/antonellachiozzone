@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de antonella  chiozzone 😁
+## Bem-vindo(a) ao perfil de Antonella  Chiozzone 😁
 
  <div>
    <a href="https://github.com/antonellachiozzone">
